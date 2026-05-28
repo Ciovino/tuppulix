@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">-🌍  I'm based in Italy<br>-✉️  You can contact me at carmelo.bertolami29@gmail.com<br>-🧠  I'm learning as many things as possible<br>-🤝  I'm open to collaborating on all interesting project<br>-⚡  If I can learn something new, I'm super happy</p>
+<p align="left">-🌍  I'm based in Africa (Sicily)<br>-✉️  You can contact me at carmelo.bertolami29@gmail.com<br>-🧠  I'm learning as many things as possible<br>-🤝  I'm open to collaborating on all interesting project<br>-⚡  If I can learn something new, I'm super happy</p>
 
 ###
 
